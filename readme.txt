@@ -1,1 +1,1 @@
-œ–»Ã≈–€ ¡»Àﬂ“‹
+FULL FUCKING shit
